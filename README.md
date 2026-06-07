@@ -1,1 +1,1 @@
-< bling bling gems >
+BLING BLING GEMS
